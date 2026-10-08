@@ -1,1 +1,0 @@
-# script--escrever-qualquer-coisa-eb-do-barreto
